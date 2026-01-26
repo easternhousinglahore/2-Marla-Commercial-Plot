@@ -1,6 +1,6 @@
-## Eastern City Walk as Lahore’s Fastest Growing Commercial Zone
+# Eastern City Walk as Lahore’s Fastest Growing Commercial Zone
 
-Lahore has always been the center of business, culture, and real estate activity in Punjab. Over the past decade, the city has witnessed a major shift toward planned commercial developments that combine modern infrastructure with strong business potential. Among these new projects, Eastern City Walk has quickly gained recognition as one of the most promising commercial destinations in the city.
+Lahore has always been the center of business, culture, and real estate activity in Punjab. Over the past decade, the city has witnessed a major shift toward planned commercial developments that combine modern infrastructure with strong business potential. Among these new projects, [Eastern City Walk](https://easternhousing.com.pk/eastern-city-walk/) has quickly gained recognition as one of the most promising commercial destinations in the city.
 
 Investors, business owners, and developers searching for long-term opportunities are now closely watching Eastern City Walk as Lahore’s fastest growing commercial zone. With its strategic location, modern planning, and strong connectivity, this project is shaping the future of organized commercial development in the eastern corridor of Lahore.
 
@@ -121,7 +121,7 @@ Compared to older commercial areas, Eastern City Walk offers:
 
 These advantages make it more attractive than congested traditional markets and less organized commercial strips.
 
-This is why many investors now prefer City Walk in Lahore style projects over conventional commercial locations.
+This is why many investors now prefer [City Walk](https://easternhousing.com.pk/eastern-city-walk/) in Lahore style projects over conventional commercial locations.
 
 ## Legal Security and Planned Development
 
